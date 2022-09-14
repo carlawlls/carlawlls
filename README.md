@@ -1,4 +1,4 @@
-### Hi, I'm Carla 💅🏻😎
+## Hi, I'm Carla 💅🏻😎
 
 I'm a Software Engineer from Germany and moved to Japan in 2016.
 
